@@ -6,6 +6,6 @@
 - 💻 Currently open to work.
 - 💬 Ask me about anything: 🤓
 - 📫 How to reach me: rajatrao127[at]gmail[dot]com.
-- 🤝 Feel free to connect on [Linkedin](https://www.linkedin.com/in/rajat-rao-b94b45123)
-- 💼 My [Portfolio](https://raobit.com)
+- 🤝 Feel free to connect on [Linkedin](https://www.linkedin.com/in/rajat-rao-b94b45123).
+- 💼 My [Portfolio](https://raobit.com).
 
