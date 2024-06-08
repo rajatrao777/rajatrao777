@@ -6,5 +6,5 @@
 - 💬 Ask me about anything: 🤓
 - 📫 How to reach me: rajatrao127[at]gmail[dot]com.
 - 🤝 Feel free to connect on [Linkedin](https://www.linkedin.com/in/rajatrao7).
-- 💼 My [Portfolio](https://raobit.com).
+- 💼 My [Website](https://raobit.com).
 
